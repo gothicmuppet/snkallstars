@@ -16,7 +16,7 @@ Welcome. I am making a review of my experience playing SNK All stars.
 **Strengths**
 1. This game plays similiar to KOFumol. Make a team of 6 characters. It has raid mode and stars to level characters up.
 2. Artwork is nice
-3. Characters come from Last Blade and Samurai Showdown
+3. Guest characters come from Last Blade and Samurai Showdown
 4. Boosting all characters is needed. If you play other modes, the bonus on those characters get passed to the other modes where recruiting fighters are random in a small RPG side quest.
 5. Sometimes the quest has different goals to keep the game interesting.
 6. Character frags are cheaper than KOFumol according to number.
